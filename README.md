@@ -1,2 +1,2 @@
 # cloneblog
-trying to make something new
+This is my First Try Plaese Check The errores and help me.
